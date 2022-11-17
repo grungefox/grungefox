@@ -11,8 +11,8 @@ Poland🇵🇱🇪🇺 | she/her🏳️‍⚧️ | bi/pan | aspie
  
 ## Contact:  
 • e-mail (coming soon) <!--create LinkedIn-->  
-• [Mastodon](https://mastodon.social/@grunge_fox)  
-• [Twitter](https://twitter.com/grunge_vixen)  
+• [Mastodon](https://mstdn.party/@grunge_fox)  
+<!-- • [Twitter](https://twitter.com/grunge_vixen) inactive, thanks to Elon Musk lol-->
 
 ## Donation:
 (coming soon)
